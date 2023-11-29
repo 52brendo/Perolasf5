@@ -10,7 +10,7 @@
 
       PEROLAS DE CARLETE.
 * acho que sou um pouco burro(disse logo apos colocar o dedo na descarga quente).
-* joyce perguntou se alquem  pratrocinava o guaraná para o café,e carlete pensando quem patrocinava a marca guarana !
+* joyce perguntou se alquem  pratrocinava o guaraná para o café,e carlete pensando quem patrocinava a marca guarana ! 29/11/2023
 
       PEROLAS DE JOYCE.
 * semana passada a gente vai ai -(marcando apresentacao na semana sequinte).
