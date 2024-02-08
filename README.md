@@ -7,7 +7,7 @@
 
       PEROLAS DE BRENDO.
 * sexta feira na hora do almoco a gente podia fazer um churrasquinho ne?nota:ainda era segunda 9 horas da manha.
-* Carlete diz(cliente esta dazendo a nota e esta sumindo) ai Brendo diz (pega o acesso que vou esfregar na cara dela)
+* Carlete diz(cliente esta fazendo a nota e esta sumindo) ai Brendo diz (pega o acesso que vou esfregar na cara dela)
 
       PEROLAS DE CARLETE.
 * acho que sou um pouco burro(disse logo apos colocar o dedo na descarga quente).
